@@ -1,4 +1,4 @@
-![Jovan Kaliisa Founder AccessUg Masaka](Jovan-Kaliisa-Masaka%20jpg)
+![Jovan Kaliisa Founder AccessUg Masaka](Jovan-Kaliisa%20jpg)
 
 # Jovan Kaliisa - Founder AccessUg
 
