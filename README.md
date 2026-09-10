@@ -1,3 +1,5 @@
+![Jovan Kaliisa Founder AccessUg Masaka](Jovan-Kaliisa-Masaka%20jpg)
+
 # Jovan Kaliisa - Founder AccessUg
 
 ### 16y/o S3 Innovator | Masaka Nkoni, Uganda
